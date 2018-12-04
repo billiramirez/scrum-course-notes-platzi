@@ -1,0 +1,1 @@
+![WorkFlowScrum](https://static.platzi.com/media/user_upload/Copy%20of%20PlatziSlides%20%283%29-c0a4f375-95b8-47f4-956a-d4e2a87bfb60.jpg)
